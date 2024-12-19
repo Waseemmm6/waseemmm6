@@ -51,7 +51,7 @@ Here are a few projects I've worked on:
 ### 🚀 **Connect with Me**
 - 📫 **Email**: [mallahwaseem7006@gmail.com](mailto:waseem@example.com)  
 - 💼 **LinkedIn**: [linkedin.com/in/waseem](https://www.linkedin.com/in/mallah-waseem-5339b5251?lipi=urn%3Ali%3Apage%3Ad_flagship3_profile_view_base_contact_details%3B4TQ6VLRDTF2TH8xBWPolZg%3D%3D)  
-- 🐙 **GitHub**: [github.com/waseem](https://github.com/waseemmm4)  
+- 🐙 **GitHub**: [github.com/waseem](https://github.com/Waseemmm6)  
 
 ---
 
